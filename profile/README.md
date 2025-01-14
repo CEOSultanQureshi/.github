@@ -1,5 +1,4 @@
-# CEO Sultan Qureshi of NS Nordics AS | Construction Industry Expert with 24+ Years of Global Experience
-
+# Sultan Qureshi: 24+ Years in Global Construction Leadership
 With over 24 years of senior-level experience in the construction industry, **Sultan Qureshi** has consistently led high-impact planning and project control teams on large-scale, complex projects across the UK and internationally. Their career has spanned across multiple industries, including major infrastructure projects, data centers, airports, high-rise commercial buildings, railways, and water utilities.
 
 ## Expertise in Construction Planning and Project Controls
